@@ -237,4 +237,4 @@ Alien Shooter 2 is offered as a full free version with all features and updates 
 Don't miss out on the action! **Download Alien Shooter 2 now** and experience the thrill of battling aliens like never before.
 
 ---
-**Last updated:** 2026-09-15 21:59:36 UTC
+**Last updated:** 2026-09-16 00:11:17 UTC
